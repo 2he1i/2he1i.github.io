@@ -1,2 +1,2 @@
 # 2he1i.github.io
-Personal Homepage
+I am a first year Undergraduate in Beijing Institute of Technology.
